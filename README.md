@@ -2,6 +2,7 @@
 
 Principais artigos do blog Lotus Capital
 Seleção dos artigos mais lidos no blog
+
 [1) Qual o melhor investimento para iniciantes? Confira 5 alternativas!](https://lotuscapitalbr.com/blog/qual-o-melhor-investimento-para-iniciantes/)
 
  
