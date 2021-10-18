@@ -5,6 +5,7 @@ Principais artigos do blog [Lotus Capital](https://lotuscapitalbr.com/)
 
 [1) Qual o melhor investimento para iniciantes? Confira 5 alternativas!](https://lotuscapitalbr.com/blog/qual-o-melhor-investimento-para-iniciantes/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/06/investimentos-para-iniciantes-destaque.jpg)
  
 Se você pensa em começar a investir no mercado financeiro, é fundamental entender que há diversas alternativas na renda fixa e na renda variável. Como será necessário escolher o que faz sentido para o seu portfólio, é importante conhecer o melhor investimento para iniciantes.
 Ao mesmo tempo, essa é uma decisão particular e que deve considerar suas características pessoais. Desse modo, saber mais sobre os investimentos o torna capaz de definir o que se encaixa em sua realidade e na realização dos seus sonhos.
