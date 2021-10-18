@@ -16,6 +16,7 @@ Pensando nisso, nós, da Lotus Capital, preparamos este artigo. Continue a leitu
 
 [2) Você sabe como funciona o imposto sobre herança?](https://lotuscapitalbr.com/blog/voce-sabe-como-funciona-o-imposto-sobre-heranca/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/03/Imposto-sobre-heranca-destaque.jpg)
 
 Não é fácil lidar com a perda de um ente próximo. Com a burocracia em torno da sucessão de patrimônio, a dor pode se tornar ainda maior. Nesse sentido, é interessante entender o mais cedo quanto possível como funciona o imposto sobre herança.
 
@@ -27,6 +28,7 @@ Neste artigo, você acompanhará informações sobre o tema e acumular conhecime
 
 [3) 3 Tipos de Títulos do Tesouro Direto que você precisa conhecer](ttps://lotuscapitalbr.com/blog/conheca-os-3-tipos-de-titulos-do-tesouro-direto/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/03/Tipos-Tesouro-Direto-Destaque.jpg)
 
 O Governo Federal emite e vende diferentes tipos de títulos para investidores. Assim, o país capta recursos que permitem investimentos e financiam sua dívida. Na prática, portanto, investir em títulos públicos é emprestar dinheiro para a União.
 
@@ -38,6 +40,7 @@ Se você ainda não conhece essa alternativa em detalhes, saiba que esses títul
 
 [4) CRI, CRA e Debêntures: Conceitos e como investir](https://lotuscapitalbr.com/blog/cri-cra-e-debentures-conceitos-e-como-investir/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2019/12/debentures-destaque.jpg)
 
 Com a redução da Taxa de Juros na economia brasileira (SELIC), boa parte dos investidores nacionais com o perfil mais conservador se viu obrigada a rever suas estratégias em busca de alternativas mais rentáveis para aumentar o patrimônio.
 
@@ -49,6 +52,7 @@ A seguir, explicaremos o significado e a lógica de funcionamento de cada uma de
 
 [5) Sistema Financeiro Nacional: entenda o que é e como ele funciona!](https://lotuscapitalbr.com/blog/como-funciona-o-sistema-financeiro-nacional/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/03/Sistema-Financeiro-Nacional-Destaque.jpg)
 
 Muitas pessoas pensam que apenas os profissionais do mercado financeiro precisam conhecer o funcionamento do Sistema Financeiro Nacional (SFN). Porém, isso não é verdade. Afinal, o mercado é composto por diversas instituições que impactam a vida de todos os brasileiros.
 
@@ -60,6 +64,7 @@ Acompanhe o artigo e conheça o SFN!
 
 [6) Conheça 9 dos principais tipos de fundos de investimentos do mercado](https://lotuscapitalbr.com/blog/9-principais-fundos-de-investimentos-do-mercado/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/05/tipos-de-fundos-destaque.jpg)
 
 Muitos investidores consideram fazer aportes em fundos de investimentos para compor a sua carteira, mas não conhecem os diferentes tipos do mercado. A alternativa pode ser interessante devido à maior praticidade trazida pela atuação do gestor e pode trazer bons resultados.
 
@@ -71,6 +76,7 @@ A seguir, você conhecerá 9 tipos de fundos de investimentos e suas principais 
 
 [7) Perfil de Investidor: Qual a importância e como saber o seu?](https://lotuscapitalbr.com/blog/descubra-o-seu-perfil-de-investidor/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2020/06/Perfil-Investidor.jpg)
 
 Nos últimos dois anos, é possível notar uma importante mudança na cultura e no perfil de investidor do brasileiro. O contexto marcado por juros baixos e maior acesso à informação, tem estimulado uma migração saudável para economia de forma geral, com investidores saindo da poupança para outras classes de ativos mais sofisticadas.
 
@@ -80,6 +86,7 @@ O crescimento desse movimento reforça muito a importância do assunto que vamos
 
 [8) Sucessão Patrimonial: o que é, importância e como organizar a sua?](https://lotuscapitalbr.com/blog/a-importancia-da-sucessao-patrimonial/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/03/Sucessao-Patrimonial-Destaque.jpg)
 
 Um dos objetivos de investir é construir um bom patrimônio, que traga segurança financeira e mais oportunidades. Porém, ao fazer isso, também é importante pensar na sucessão patrimonial. Você já conhece esse conceito?
 
@@ -91,6 +98,7 @@ Se você quer entender o que é a sucessão patrimonial, continue a leitura e es
 
 [9) Investidor qualificado: entenda o que é e quem pode se tornar um](https://lotuscapitalbr.com/blog/como-se-tornar-um-investidor-qualificado/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/05/Investidor-Qualificado-Destaque.jpg)
 
 Se você faz seus investimentos por meio de uma instituição financeira, talvez tenha notado que algumas alternativas estão disponíveis apenas para investidores qualificados. Com isso, é normal se perguntar o que é investidor qualificado e por que existe essa diferenciação.
 
@@ -102,6 +110,7 @@ Neste conteúdo que preparamos, você aprenderá o que é investidor qualificado
 
 [10) Reserva de oportunidade: o que é e quando vale a pena?](https://lotuscapitalbr.com/blog/quando-a-reserva-de-oportunidade-vale-a-pena/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/04/Reserva-de-oportunidade-destaque.jpg)
 
 Ao se deparar com opções promissoras para investir, um problema que pode acontecer é a falta de capital. Nem sempre há valores disponíveis, fazendo com que você tenha que abrir mão da alternativa. Nesse cenário, a reserva de oportunidade pode ser a solução.
 
@@ -113,6 +122,7 @@ Para que não restem dúvidas, continue lendo este conteúdo. Nele, você entend
 
 [11) 7 Mitos e Verdades sobre o Mercado Financeiro](https://lotuscapitalbr.com/blog/7-mitos-e-verdades-sobre-o-mercado-financeiro/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/03/Mercado-Financeiro-Mitos-Verdades-Destaque.jpg)
 
 Quando o assunto é o mercado financeiro, algumas informações são difundidas e repetidas com bastante frequência. Porém, nem todas são verdadeiras — e se deparar com mentiras sobre esse assunto pode gerar perdas ou frustrações. Então, o ideal é saber o que é mito e o que é verdade.
 
@@ -124,6 +134,7 @@ Para esclarecer pontos que são cruciais, conheça quais são 7 mitos e verdades
 
 [12) Qual a melhor alternativa para a poupança? Descubra!](https://lotuscapitalbr.com/blog/qual-a-melhor-alternativa-para-a-poupanca/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/07/Ppanca-Destaque.jpg)
 
 Mesmo com uma rentabilidade baixa — por vezes, menor que a inflação — a poupança continua sendo bastante utilizada pelo brasileiro para investir seu dinheiro. O motivo pode guardar relação com o desconhecimento de alternativas mais vantajosas que ela, ou de como investir.
 
@@ -135,6 +146,7 @@ Então acompanhe este artigo e descubra qual a melhor alternativa de investiment
 
 [13) Fundos Imobiliários: O que são e como começar a investir](https://lotuscapitalbr.com/blog/como-investir-em-fundos-imobiliarios/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2019/11/Fundos-Imobiliarios.jpg)
 
 Antes de falarmos sobre Fundos Imobiliários, você já ouviu alguém dizer que “se você busca segurança e rentabilidade, aplique o seu dinheiro em imóveis”? Essa frase, muito repetida por nossos pais e avós, ajudou a construir no Brasil uma cultura muito forte de investimentos no mercado imobiliário. Tão forte que os imóveis ainda representam o segundo tipo de aplicação preferida do brasileiro, atrás apenas da caderneta de poupança.
 
@@ -144,6 +156,7 @@ Não podemos negar que o investimento direto imóveis é, de fato, seguro e rent
 
 [14) 6 Vantagens de diversificar os investimentos na sua carteira](https://lotuscapitalbr.com/blog/vantagens-de-diversificar-os-investimentos/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/04/Diversificar-Investimentos-Destaque.jpg)
 
 Saber investir não se limita a escolher produtos, ativos e derivativos de forma individual. É preciso entender como eles se relacionam e como mitigar riscos sem deixar de considerar a rentabilidade da carteira. Para tanto, uma prática fundamental é diversificar os investimentos.
 
@@ -155,6 +168,7 @@ Pensando nisso, preparamos este artigo com as 6 vantagens de diversificar invest
 
 [15) Como organizar minha vida financeira? Descubra a resposta!](https://lotuscapitalbr.com/blog/como-organizar-minha-vida-financeira/)
 
+![Lotus Capital](https://lotuscapitalbr.com/wp-content/uploads/2021/05/minha-vida-financeira-destaque.jpg)
 
 “Minha vida financeira está uma bagunça e não sei por onde começar a mudá-la”. Se você se identificou com essa afirmação, saiba que ela é bastante comum e demonstra dificuldades ao lidar com as próprias finanças. Portanto, pode afetar como o dinheiro é usado no dia a dia.
 É por isso que é importante investir em uma estratégia que ajude a estruturar o seu orçamento. Fazendo isso, é possível se organizar para alcançar bons resultados, tanto para o curto prazo quanto para o médio e longo prazo.
